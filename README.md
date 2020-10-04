@@ -28,7 +28,7 @@ Here are some ideas to get you started:
 
 备用网址：http://www.fackwiki3.xyz
 
-发布页：http://www.fabuye.cn  （记忆：www.发布页.cn）
+发布页：http://www.fabuye.vip  （记忆：www.发布页.vip）
 
 强烈不推荐360，qq，搜狗等国产浏览器
 
