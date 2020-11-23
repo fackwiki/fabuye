@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 感谢各位本站的支持与厚爱，深刻建议大家按Ctrl + D收藏本页！及时找到回家的路！
 
-最新地址：http://www.fackwiki.com  （官网，免翻墙）
+最新地址：http://www.fackwiki.com  （官网，免翻墙，已被移动网络屏蔽，使用备用网址）
 
 备用网址：http://www.fackwiki.xyz
 
