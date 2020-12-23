@@ -18,17 +18,17 @@ Here are some ideas to get you started:
 
 感谢各位本站的支持与厚爱，深刻建议大家按Ctrl + D收藏本页！及时找到回家的路！
 
-最新地址：https://www.fackwiki.com  （官网，已被墙，请使用备用网址）
+最新地址：www.fackwiki.com  （官网，已被墙，请使用备用网址）
 
-备用网址：http://www.fackwiki.xyz
+备用网址：www.fackwiki.xyz
 
-备用网址：http://www.fackwiki1.xyz
+备用网址：www.fackwiki1.xyz
 
-备用网址：http://www.fackwiki2.xyz
+备用网址：www.fackwiki2.xyz
 
-备用网址：http://www.fackwiki3.xyz
+备用网址：www.fackwiki3.xyz
 
-发布页：http://www.fabuye.vip  （记忆：www.发布页.vip）
+发布页：www.fabuye.vip  （记忆：www.发布页.vip）
 
 强烈不推荐360，qq，搜狗等国产浏览器
 
