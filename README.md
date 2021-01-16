@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 
 备用网址：www.fackwiki.xyz
 
-备用网址：www.fackwiki1.xyz
+备用网址：www.fackwiki1.xyz（官网，已被UC浏览器屏蔽，请使用其他网址）
 
 备用网址：www.fackwiki2.xyz
 
