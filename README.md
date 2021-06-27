@@ -30,7 +30,7 @@ Here are some ideas to get you started:
 
 备用网址：www.fackwiki3.xyz
 
-发布页：www.fabuye.vip  （记忆：www.发布页.vip）
+发布页：www.fabuye1.vip  （记忆：www.发布页1.vip，后面加个1）
 
 强烈不推荐360，qq，搜狗等国产浏览器
 
